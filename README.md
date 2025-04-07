@@ -5,14 +5,14 @@
 　　‎
   
 <p align="center">
-<img src="[https://images4katori.carrd.co/assets/images/image09.png?v=e20802ee](https://file.garden/Z0S_tEmCggxGeVI8/ivantill%20rentry%20tillourstarsfade/MIDDLE%20ICON.jpg)" width="36%" height="36%"> 
+<img src="https://images4katori.carrd.co/assets/images/image24.png?v=2aab4593" width="50%" height="50%"> 
 </p>
 
 
 <div id="header" align="center">
 
 
-♡ 　he⠀  ⁄ ⠀they　  ⋮ 　**6**teen　  ⋮ 　‎non-sharing  wanderer  yume　>_<　
+♡ 　he⠀  ⁄ ⠀they　  ⋮ 　**6**teen　  ⋮ 　‎biggest ivantill obsessed fanatic　>_<　
 
 
 usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds !
@@ -20,9 +20,10 @@ usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds
 [rentry](https://rentry.co/tillyouremine)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
 
 ⠀     
-
-dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ doubles **DNI**uf ... more in rentry heh ⁉⁉😧
-⠀     
+<p align="center">
+dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ doubles DNI ... more in rentry heh ⁉⁉😧
+</p>
+  ⠀     
 ⠀     
 
 ![](https://komarev.com/ghpvc/?username=tillourstarsfade&label=how+many+freaks?!&color=242060&style=plastic&base=5046)
