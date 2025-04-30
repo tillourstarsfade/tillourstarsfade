@@ -5,7 +5,7 @@
 　　‎
   
 <p align="center">
-<img src="https://images4katori.carrd.co/assets/images/image24.png?v=2aab4593" width="50%" height="50%"> 
+<img src="https://images4katori.carrd.co/assets/images/image26.png?v=8182bc65" width="50%" height="50%"> 
 </p>
 
 
@@ -21,7 +21,7 @@ usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds
 
 ⠀     
 <p align="center">
-dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ doubles DNI ... more in rentry heh ⁉⁉😧
+dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ doubles DNIuf ... more in rentry meow ⁉⁉
 </p>
   ⠀     
 ⠀     
