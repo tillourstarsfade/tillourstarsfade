@@ -17,7 +17,7 @@
 
 usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds !
 
-[rentry](https://rentry.co/scaraddicted)　[**<** rentry*2* **3**](https://rentry.co/tilloursoulsmeet)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
+[rentry](https://rentry.co/scaraddicted)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
 
 ⠀     
 <p align="center">
